@@ -1,6 +1,6 @@
 tutorial : https://www.youtube.com/watch?v=KrQP2uh63Ko
 
-🍊 Discord : https://discord.gg/xW72YDqHdu
+ Discord : https://discord.gg/xW72YDqHdu
 
 Lumia helps you to get back into the game by delivering the greatest HWID valorant spoofer for games such as Valorant, COD, and many others
 
